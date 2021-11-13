@@ -17,4 +17,4 @@ Ben, SADECE ALLAH hakkındaki konuşmamı tekrar ettiğimde, herhangi nefret duy
 
 39:45 ayetinde ifade edilen muhteşem Kuran-i kritere dayanarak, bu sorulara verdiğiniz cevaplar kendinizi ve kaderinizi bilmenin anahtarını sağlamaktadır.
 ------------------------------------------------------------
-"Allah, "tek başına" anıldığı zaman, ahirete inanmayanların kalpleri burkulur. O'nun yanı sıra başkası anıldığı zaman sevinip mutluluk duyarlar." 39:45
+"ALLAH, "tek başına" anıldığı zaman, ahirete inanmayanların kalpleri burkulur. O'nun yanı sıra başkası anıldığı zaman sevinip mutluluk duyarlar." 39:45
