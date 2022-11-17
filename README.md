@@ -1,3 +1,5 @@
+9:128 ve 9:129, Şeytan tarafından Kuran'a eklendi! ALLAH tarafından değil!
+
 # Son Olarak: En Önemli Soru
 Aklınızda, ALLAH TEK olarak kalabilir mi?/var olabilir mi?
 
