@@ -1,11 +1,11 @@
 9:128 ve 9:129, Şeytan tarafından Kuran'a eklendi! ALLAH tarafından değil!
 
 # Son Olarak: En Önemli Soru
-Aklınızda, ALLAH TEK olarak kalabilir mi?/var olabilir mi?
+Aklınızda, ALLAH TEK olarak kalabilir mi?
 
 Veya ALLAH'ın anılmak ve kulluk edilmek için Muhammed'e ihtiyacı mı vardır?
 
-Aklınızda, SADECE ALLAH kalabilir/var olabilir mi?
+Aklınızda, SADECE ALLAH kalabilir mi?
 
 Veya aklınızda, ALLAH'ın: Muhammed, İsa, Meryem veya bazı evliya(lar) gibi bir ortağa mı ihtiyacı vardır?
 
@@ -13,7 +13,7 @@ Muhammed, İsa, Meryem veya herhangi bir evliya veya herhangi biri veya hiç bir
 
 SADECE ALLAH hakkında konuşmaktan rahatsızlık duyuyor musunuz?
 
-Ben, SADECE ALLAH hakkında konuşmaya devam ederken, bu sizi rahatsız ediyor mu? ALLAH ile beraber başka isimler de duymanız gerekiyor mu? SADECE ALLAH aklınızda kalabilir/var olabilir mi?
+Ben, SADECE ALLAH hakkında konuşmaya devam ederken, bu sizi rahatsız ediyor mu? ALLAH ile beraber başka isimler de duymanız gerekiyor mu? SADECE ALLAH aklınızda kalabilir mi?
 
 Ben, SADECE ALLAH hakkındaki konuşmamı tekrar ettiğimde, herhangi nefret duyuyor musunuz? Yoksa, SADECE ALLAH hakkındaki konuşmamdan mutlu ve memnun musunuz?
 
