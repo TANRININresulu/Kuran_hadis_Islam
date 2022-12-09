@@ -1,6 +1,6 @@
-allahın ismiyle zarif şefkatli
+ALLAH'ın İsmiyle Zarif Şefkatli
 
-9:128 ve 9:129 şeytan tarafından kurana eklendi! allah tarafından değil!
+9:128 ve 129 ayetleri ALLAH'tandır!
 
 # son olarak en önemli soru
 
@@ -21,6 +21,5 @@ ben sadece allah hakkında konuşmaya devam ederken bu sizi rahatsız ediyor mu?
 ben sadece allah hakkındaki konuşmamı tekrar ettiğimde herhangi nefret duyuyor musunuz? yoksa sadece allah hakkında konuşmamdan mutlu ve memnun musunuz?
 
 39:45 ayetinde ifade edilen muhteşem kurani kritere dayanarak bu sorulara verdiğiniz cevaplar kendinizi ve kaderinizi bilmenin anahtarını sağlamaktadır.
-
 
 "allah tek başına anıldığı zaman ahirete inanmayanların kalpleri burkulur. onun yanı sıra başkası anıldığı zaman sevinip mutluluk duyarlar." 39:45
