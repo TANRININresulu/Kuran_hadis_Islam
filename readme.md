@@ -1,6 +1,6 @@
-ALLAH'ın İsmiyle Zarif Şefkatli
+ALLAH'ın İsmiyle ZARİF ŞEFKATLİ
 
-9:128 ve 129 ayetleri ALLAH'tandır!
+9:128 ve 129 şeytandandır! ALLAH'tan değil!
 
 # son olarak en önemli soru
 
