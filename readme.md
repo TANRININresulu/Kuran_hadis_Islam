@@ -1,4 +1,4 @@
-ALLAH'ın İsmiyle ZARİF ŞEFKATLİ
+ALLAH'ın İsmiyle ŞEFKATLİ MERHAMETLİ
 
 9:128 ve 129 şeytandandır! ALLAH'tan değil!
 
