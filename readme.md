@@ -1,4 +1,4 @@
-# [İndir: "Kuran Hadis İslam"](https://raw.githubusercontent.com/TANRIninResulu/Kuran_hadis_Islam/main/Kuran%20Hadis%20İslam%20Mobile.pdf)
+# İndir: "[Kuran Hadis İslam](https://raw.githubusercontent.com/TANRIninResulu/Kuran_hadis_Islam/main/Kuran%20Hadis%20İslam%20Mobile.pdf)"
 
 ALLAH'ın İsmiyle ŞEFKATLİ MERHAMETLİ
 
